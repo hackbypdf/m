@@ -67,7 +67,12 @@
 
 
 [Sad]
-
+![photo (148)](https://github.com/hackbypdf/m/assets/147275710/9ae6ebd2-380a-43fe-8469-3f6a70bea9ec)
+![photo (147)](https://github.com/hackbypdf/m/assets/147275710/23996902-d6ce-4906-a217-bfeb7e0ff097)
+![photo (143)](https://github.com/hackbypdf/m/assets/147275710/5ed1e5af-ae87-46e3-adeb-6164e521b1a1)
+![photo (140)](https://github.com/hackbypdf/m/assets/147275710/4d36c398-995f-4c25-a530-e6124c454f31)
+![photo (137)](https://github.com/hackbypdf/m/assets/147275710/64e9e704-a7f7-49a7-a5c7-b5486a6e9a84)
+![photo (132)](https://github.com/hackbypdf/m/assets/147275710/312c1fcf-3fb1-40bb-a2db-ddbab452fdf7)
 ![photo (125)](https://github.com/hackbypdf/m/assets/147275710/21fe857a-98f3-4409-81ab-5a19a3fbe9d7)
 ![photo (120)](https://github.com/hackbypdf/m/assets/147275710/ed5bb66d-3611-4d76-892f-6e44242ffacf)
 ![photo (118)](https://github.com/hackbypdf/m/assets/147275710/ad7d5480-cc63-4780-b7e9-7e6a33262e53)
@@ -108,5 +113,42 @@
 ![photo (4)](https://github.com/hackbypdf/m/assets/147275710/491494d0-3c6b-48ad-9e3e-d6651cda880a)
 ![photo (3)](https://github.com/hackbypdf/m/assets/147275710/6494cc6f-f1d6-49fe-a19f-1e550f57d86b)
 
+[Song]
+![photo (152)](https://github.com/hackbypdf/m/assets/147275710/43d33a9a-d4f9-4af8-a100-cf17bd487727)
+![photo (134)](https://github.com/hackbypdf/m/assets/147275710/08f47d85-1a60-455f-aec6-926b5b1b261d)
+![photo (131)](https://github.com/hackbypdf/m/assets/147275710/dae181e5-24e5-402b-a759-36efc4d07e5d)
+![photo (128)](https://github.com/hackbypdf/m/assets/147275710/d5582213-0fc0-4801-b9dd-eb6e06e95845)
+![photo (119)](https://github.com/hackbypdf/m/assets/147275710/e04226c7-c605-464a-b3a9-061173278c94)
+![photo (116)](https://github.com/hackbypdf/m/assets/147275710/b5f3eaee-cb23-4cae-8267-5713337acf24)
+![photo (114)](https://github.com/hackbypdf/m/assets/147275710/e6d23e4c-3e9a-4b51-960d-f023deb71014)
+![photo (102)](https://github.com/hackbypdf/m/assets/147275710/f34c957c-2373-407b-a207-9b30b46bfc03)
+![photo (100)](https://github.com/hackbypdf/m/assets/147275710/166122c7-f03c-46d0-989a-8b97c3570b1e)
+![photo (88)](https://github.com/hackbypdf/m/assets/147275710/0cccd6a1-9650-4362-8fc0-c80259a09c05)
+![photo (81)](https://github.com/hackbypdf/m/assets/147275710/b3a234c7-d57f-458a-bba1-de997f9ae651)
+![photo (58)](https://github.com/hackbypdf/m/assets/147275710/efe96a05-2ff9-4733-8bde-23bdd56e4c0b)
+![photo (26)](https://github.com/hackbypdf/m/assets/147275710/e18d2b18-379b-4af1-a833-c0f945acd63d)
+
+[breakup]
+![photo (142)](https://github.com/hackbypdf/m/assets/147275710/0bdeb4e0-c524-41e8-8993-e87a78905b71)
+![photo (136)](https://github.com/hackbypdf/m/assets/147275710/2aabf7ee-5091-4663-ab60-297d8e7100ee)
+![photo (135)](https://github.com/hackbypdf/m/assets/147275710/48bbed3b-c45b-41e6-a0e6-41d79eb4fc40)
+![photo (126)](https://github.com/hackbypdf/m/assets/147275710/b24efaf8-da92-4821-ac94-c0edde96ab09)
+![photo (63)](https://github.com/hackbypdf/m/assets/147275710/deb5c248-fc2b-4f3b-8c76-dac3ffafdd79)
+![photo (49)](https://github.com/hackbypdf/m/assets/147275710/362c4367-6ee9-45a9-8596-14685ae5527c)
+![photo (33)](https://github.com/hackbypdf/m/assets/147275710/a57fcd91-ee2f-4c54-a4d6-b6b9dfb5394f)
+![photo (17)](https://github.com/hackbypdf/m/assets/147275710/0d1d5be7-842c-4e2a-849c-8da5da763a50)
+
+[Attitude]
+![photo (149)](https://github.com/hackbypdf/m/assets/147275710/d9aadd19-7159-4468-94b2-38e88ecf8de8)
+![photo (141)](https://github.com/hackbypdf/m/assets/147275710/9a5b4780-4e5c-4e78-ba09-996c7ad998b8)
+![photo (95)](https://github.com/hackbypdf/m/assets/147275710/12780088-1048-4d4d-bf76-409b3c61b46b)
+![photo (86)](https://github.com/hackbypdf/m/assets/147275710/169aac4b-8555-4f5d-b88b-0b3857139f41)
+![photo (80)](https://github.com/hackbypdf/m/assets/147275710/8f87305c-3705-4738-b07a-1abb28430873)
+![photo (77)](https://github.com/hackbypdf/m/assets/147275710/d5c16104-910c-4814-804b-a2695e6b69e4)
+![photo (67)](https://github.com/hackbypdf/m/assets/147275710/cc1a3bb9-094b-4cea-a4e2-58b849955a48)
+![photo (62)](https://github.com/hackbypdf/m/assets/147275710/2c7a880c-9236-40c6-b0ff-41c05d1cc799)
+![photo (57)](https://github.com/hackbypdf/m/assets/147275710/d7ad132a-284c-4171-ac52-7d7edc2cf252)
+![photo (42)](https://github.com/hackbypdf/m/assets/147275710/ae07a176-f023-4b07-91c4-fadfc5ec26bd)
+![photo (12)](https://github.com/hackbypdf/m/assets/147275710/96348ca6-4304-4a9d-bf6c-a980ae4e5556)
 
 
